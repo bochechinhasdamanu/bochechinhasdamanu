@@ -1,8 +1,7 @@
-- 👋 Isabelle martins, Olá boa tarde.
+- 👋 Olá boa tarde.
 - Eu ajudo minha mãe, cuido dos meus irmãos e regulo meus estudos e descanso.
-- Eu estudo.
+- contato: martinsisa2005@gmail.com
 - Depende muito costumo cuidar de criança, fazer trabalhos domésticos, e outras coisas.
-- Meu número de celular.
-- Meu nome é isabelle, estudo no josé gomes, sou experiente em trabalhos domésticos, cuidar de crianças e ler.
+- estudo no josé gomes, sou experiente em trabalhos domésticos, cuidar de crianças e ler.
 - Ponta grossa, Paraná.
 - 
